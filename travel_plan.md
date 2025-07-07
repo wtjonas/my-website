@@ -1,0 +1,36 @@
+
+| 日期               | 時間    | 主要行程            | 重點內容 & 備註                                                                                                           |
+| ---------------- | ----- | --------------- | ------------------------------------------------------------------------------------------------------------------- |
+| Day 1 / 7/13 (日) | 晚上    | 抵達與安頓           | - 20:45 抵達成田機場(NRT)。<br>- 交通：搭乘京成電鐵 Access特快直達「淺草」站。<br>- 入住飯店後，可在附近宵夜。                                             |
+| Day 2 / 7/14 (一) | 上午    | 淺草深度散策          | - 早餐選項：「友路有」、「Cafe de l'Arc」等老店。<br>- 配合習慣，向淺草寺主神「報告」。<br>- 午餐：彈性安排或跳過。                                             |
+|                  | 下午/傍晚 | 吉卜力美術館 → 吉祥寺    | - 14:00 入場，與家人在三鷹之森吉卜力美術館會合。<br>- 結束後，獨自前往吉祥寺探索。                                                                    |
+|                  | 晚上    | 吉祥寺家庭晚餐         | - 與家人在吉祥寺晚餐。<br>- 晚餐建議：「Rosé」、「カヤシマ」、「MOTHERS」。                                                                     |
+| Day 3 / 7/15 (二) | 上午    | 六本木 - 森美術館      | - 【美術館 #1】參觀森美術館。<br>- 午餐建議：六本木之丘。                                                                                  |
+|                  | 下午/晚上 | 中野 → 新宿 (集中購物日) | - 手錶尋寶：中野「Jackroad」→ 新宿「BEST ISHIDA」。<br>- 一站式購物：BICQLO、無印良品、GU、3COINS。                                             |
+|                  | 晚上    | 家庭晚餐            | - 與家人會合晚餐 (地點彈性安排)。                                                                                                 |
+| Day 4 / 7/16 (三) | 上午    | 上野文化之旅          | - 早餐：上野傳奇喫茶店「珈琲 王城」。<br>- 【美術館 #2】參觀上野之森美術館。                                                                        |
+|                  | 下午    | 谷中銀座懷舊散策        | - 午餐建議：上野或谷中地區。<br>- 步行至谷中銀座商店街。<br>- 下午茶：「カヤバ珈琲 (Kayaba Coffee)」。                                                  |
+|                  | 晚上    | 家庭晚餐            | - 與家人會合晚餐 (地點彈性安排)。                                                                                                 |
+| Day 5 / 7/17 (四) | 上午    | 京橋 - アーティゾン美術館  | - 【美術館 #3】參觀Artizon美術館。                                                                                             |
+|                  | 中午/下午 | 神保町文化探索         | - 午餐三選一：<br>  - ボンディ（歐風咖哩）<br>  - はちまき（天婦羅）<br>  - さぼうる2（拿坡里義大利麵）<br>- 藝術採購：文房堂 (Bumpodo)。<br>- 咖啡時光：「さぼうる」或「ラドリオ」。 |
+|                  | 晚上    | 家庭晚餐            | - 與家人會合晚餐 (地點彈性安排)。                                                                                                 |
+| Day 6 / 7/18 (五) | 上午    | 悠閒時光 & 歸途準備     | - 整理行李，或最後採買。                                                                                                       |
+|                  | 中午    | 前往成田機場          | - 約11:00從淺草出發，搭乘14:00左右班機。                                                                                          |
+
+| Date               | Time              | Main Activities                      | Highlights & Notes                                                                                                                                                             |
+| ------------------ | ----------------- | ------------------------------------ | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| Day 1 / 7/13 (Sun) | Evening           | Arrival & Settle in                  | - 20:45 Arrival at Narita Airport (NRT).- Transport: Keisei Access Express directly to Asakusa Station.- After checking into the hotel, option for late-night snacks nearby.   |
+| Day 2 / 7/14 (Mon) | Morning           | Asakusa Exploration                  | - Breakfast options: Traditional cafes like "Yorozuya" or "Cafe de l'Arc".- Following your routine, pay respects at Sensoji Temple.- Lunch: Flexible arrangement or skipped.   |
+|                    | Afternoon/Evening | Ghibli Museum → Kichijoji            | - 14:00 Entry, meet family at Ghibli Museum (Mitaka no Mori Ghibli Bijutsukan).- After the visit, explore Kichijoji area alone.                                                |
+|                    | Evening           | Family Dinner at Kichijoji           | - Dinner with family at Kichijoji.- Recommended restaurants: "Rosé," "Kayashima," or "MOTHERS."                                                                                |
+| Day 3 / 7/15 (Tue) | Morning           | Roppongi - Mori Art Museum           | - [Museum #1] Visit Mori Art Museum.- Lunch recommendation: Roppongi Hills.                                                                                                    |
+|                    | Afternoon/Evening | Nakano → Shinjuku (Shopping day)     | - Watch shopping: "Jackroad" in Nakano → "BEST ISHIDA" in Shinjuku.- One-stop shopping: BICQLO, MUJI, GU, 3COINS.                                                              |
+|                    | Evening           | Family Dinner                        | - Meet family for dinner (location flexible).                                                                                                                                  |
+| Day 4 / 7/16 (Wed) | Morning           | Ueno Cultural Tour                   | - Breakfast: Legendary café "Coffee Ojo" in Ueno.- [Museum #2] Visit Ueno no Mori Museum.                                                                                      |
+|                    | Afternoon         | Yanaka Ginza Nostalgic Walk          | - Lunch recommendations: Ueno or Yanaka area.- Stroll through Yanaka Ginza Shopping Street.- Afternoon tea: "Kayaba Coffee."                                                   |
+|                    | Evening           | Family Dinner                        | - Meet family for dinner (location flexible).                                                                                                                                  |
+| Day 5 / 7/17 (Thu) | Morning           | Kyobashi - Artizon Museum            | - [Museum #3] Visit Artizon Museum.                                                                                                                                            |
+|                    | Noon/Afternoon    | Jinbocho Cultural Exploration        | - Lunch (choose one): - Bondy (European-style curry) - Hachimaki (Tempura) - Saboru 2 (Neapolitan pasta)- Art supplies shopping: Bumpodo.- Coffee break: "Saboru" or "Ladrio." |
+|                    | Evening           | Family Dinner                        | - Meet family for dinner (location flexible).                                                                                                                                  |
+| Day 6 / 7/18 (Fri) | Morning           | Leisure Time & Departure Preparation | - Packing and last-minute shopping.                                                                                                                                            |
+|                    | Noon              | Head to Narita Airport               | - Depart from Asakusa around 11:00 for a flight around 14:00.                                                                                                                  |
